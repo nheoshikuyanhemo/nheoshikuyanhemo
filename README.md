@@ -1,3 +1,3 @@
 nothing happened  
 just learning  
-for success  
+for nothing 
